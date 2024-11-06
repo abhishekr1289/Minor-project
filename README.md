@@ -10,7 +10,8 @@
 
 
 ### Content Description page
-![2](https://user-images.githubusercontent.com/17312616/65086777-b1beb080-d9d0-11e9-9e2b-af3b7210bdf3.png)
+![Screenshot_6-11-2024_134618_127 0 0 1](https://github.com/user-attachments/assets/afa2072c-14f0-4f15-bd7b-0f7e048a7d35)
+
 
 
 
